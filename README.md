@@ -1,1 +1,1 @@
-# call
+This website is for emergency purposes only
